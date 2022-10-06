@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Ch3ny</h1>
 <h3 align="center">A killing joke for the society</h3>
 
-- 📫 How to reach me **ouyi.cheny@gmail.com** , ** discord:çéñdæ#4588
+- 📫 How to reach me **ouyi.cheny@gmail.com** , ** discord:çéñdæ#4588 **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
